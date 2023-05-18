@@ -1,0 +1,1 @@
+Generated on https://letsmakeagame.net/game-privacy-policy-generator/
